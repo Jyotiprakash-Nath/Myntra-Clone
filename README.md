@@ -1,1 +1,1 @@
-Site Link---- https://immortal-alloy.github.io/Myntra-Clone/
+Site Link---- https://jyotiprakash-nath.github.io/Myntra-Clone/
